@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Johnphunk
 - 👀 I’m interested in ... Crypto, Basketball.
 - 🌱 I’m currently learning ... Crypto Node, Repositories
-- 💞️ I’m looking to collaborate on ...anyyhing about crypto
+- 💞️ I’m looking to collaborate on ...anything about crypto
 - 📫 How to reach me ... jpauldemeterio@gmail.com
 - 😄 Pronouns: ... JP
 - ⚡ Fun fact: ... I gained 5k USD in PEPE in lost it all this year haha
